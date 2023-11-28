@@ -1,3 +1,7 @@
 ![logo](https://github.com/Ivan-228-git/img/assets/152098731/d3108b08-f513-439c-8adb-eae56d322be5)
 ![picture](https://github.com/Ivan-228-git/img/assets/152098731/3bec9fa2-2ce4-48da-a818-602bd2bb5d48)
 ![picture](https://github.com/Ivan-228-git/img/assets/152098731/0dc706c9-4afe-4d59-bc07-2813e57db9ad)
+![picture](https://github.com/Ivan-228-git/img/assets/152098731/853d8da1-7cb5-4b44-b3ab-1d4b518a8611)
+![picture](https://github.com/Ivan-228-git/img/assets/152098731/abb2ea56-d597-4a89-8894-6989ae588e30)
+![picture](https://github.com/Ivan-228-git/img/assets/152098731/51dcd58d-1af6-4ce6-9fa7-d25687b452b0)
+![picture](https://github.com/Ivan-228-git/img/assets/152098731/78dc7125-f327-4748-ba16-1c39bf75b113)
