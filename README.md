@@ -5,3 +5,6 @@
 ![picture](https://github.com/Ivan-228-git/img/assets/152098731/abb2ea56-d597-4a89-8894-6989ae588e30)
 ![picture](https://github.com/Ivan-228-git/img/assets/152098731/51dcd58d-1af6-4ce6-9fa7-d25687b452b0)
 ![picture](https://github.com/Ivan-228-git/img/assets/152098731/78dc7125-f327-4748-ba16-1c39bf75b113)
+![check-square](https://github.com/Ivan-228-git/img/assets/152098731/2bc12585-eb68-46ce-ac5b-beedd4d2ac4b)
+![calendar](https://github.com/Ivan-228-git/img/assets/152098731/20b39545-b12a-41ad-a829-e266340c0a27)
+![arrow-up-circle](https://github.com/Ivan-228-git/img/assets/152098731/7d9366f9-8bdc-4c4e-b410-09d299547050)
